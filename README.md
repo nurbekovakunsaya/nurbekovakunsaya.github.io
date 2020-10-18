@@ -1,1 +1,0 @@
-# nurbekovakunsaya.github.io
